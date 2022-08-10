@@ -1,2 +1,2 @@
 # soolsoolsool
-A Project Call Sool Sool Sool
+A Project Called Sool Sool Sool
